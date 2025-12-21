@@ -27,7 +27,7 @@ ${\textsf{\color{#ff20a1}ʜᴇ  /  ʜɪᴍ  /  ᴀɴʏ}}$
 
 ${\textsf{\color{#ff20a1}ʟɪɴᴋᴢᴢ!!!}}$
 
-[1](https://sk8rswag.carrd.co/)  [2](https://revospring.net/@sk8rSwag) [3](https://guns.lol/arcadepilled)  [4](https://www.roblox.com/users/4815958351/profile?friendshipSourceType=PlayerSearch)
+[outdated carrd](https://sk8rswag.carrd.co/) [toyhouse](https://toyhou.se/sk8rSwag) [outdated guns.lol](https://guns.lol/arcadepilled)  [roblox](https://www.roblox.com/users/4815958351/profile?friendshipSourceType=PlayerSearch)
 
 
 <!-- b chain 1 -->
